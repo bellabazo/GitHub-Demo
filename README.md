@@ -40,6 +40,8 @@ To one-half of this mixture add dates, cut into small pieces, and use as filling
 remaining mixture and decorating with sections of orange and perfect dates. 
 
 Recipe from: [Woman's World calendar cook book](https://babel.hathitrust.org/cgi/pt?id=coo1.ark:/13960/t3805nx1f&seq=25) on HathiTrust.
+
+
 ![Cookbook Cover](/images/calendar_cookbook_cover.jpg)
 
 ## Source
